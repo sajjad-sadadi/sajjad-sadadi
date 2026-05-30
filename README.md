@@ -1,5 +1,10 @@
 ## بیوگرافی سجاد سدادی :
 سجاد سدادی از سال 1399 فعالیت خودش را در سایت اپارات شروع کرده و اکنون درحال فعالیت در زمینه ی برنامه نویسی و بازی سازی است
+## برنامه های سجاد سدادی :
+گیمرلند1:https://myket.ir/app/com.app.myapp.YNdRXCMQLT9
+پیکسل مدیا:https://gamerland2.blogix.ir/
+## بازی های سجاد سدادی :
+پرش سخت:https://s34.picofile.com/d/8486286176/7857dca8-22fd-468b-8a97-9d99739fe071/jumping_hard.rar
 <!--
 **sajjad-sadadi/sajjad-sadadi** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
